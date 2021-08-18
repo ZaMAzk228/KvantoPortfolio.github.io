@@ -1,1 +1,0 @@
-# KvantoPortfolio.github.io
